@@ -1,4 +1,4 @@
-#  
+#  the strongest battlegrounds new Scripts offers the most advanced the strongest battlegrounds Script, with auto-heal and no cooldown. Perfect for
 
 
 
